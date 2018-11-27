@@ -1,2 +1,2 @@
 # C-Winsock-send-file
-https://youtu.be/NHrk33uCzL8
+You can watch on my youtube channel https://youtu.be/NHrk33uCzL8 Thank you!
